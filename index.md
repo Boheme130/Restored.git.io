@@ -1,5 +1,7 @@
 ## Restored
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](http://sun9-60.userapi.com/impf/c621706/v621706668/5d789/Fzz6YRz0IXw.jpg?size=604x299&quality=96&sign=edc435e4501cfc8df0b634f96e2d3122&type=album)
 <br>
 <br>
 
