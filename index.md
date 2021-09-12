@@ -1,7 +1,7 @@
 ## Restored
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://static01.nyt.com/images/2020/12/25/arts/24salman-toor-review-bar/merlin_181583103_9bbaaa18-a3d6-44d5-b32a-f137a17519ce-superJumbo.jpg)
+![avatar](https://i.loli.net/2021/09/12/vSxO8lTZU3NnBWJ.jpg)
 <br>
 <br>
 
