@@ -7,7 +7,7 @@
 
 作品：Restored <br>
 作者：Joanna Chambers <br>
-评分：5/5 <br>
+评分：4.7/5 <br>
 
 
 十八年前，二十九岁的公爵Henry和相爱的妻子结婚，生下了四个孩子过上了家庭生活，然而妻子生完孩子后对性爱产生厌恶，她和Henry仍然相爱，但为了解决Henry的需求，她允许Henry在外面找了人。二十三岁的Kit是一名长相出众的男🐔，Henry成为了Kit的”protector”, 两人签下了一年的合同，这一年里，Henry为Kit安排了两人见面的住宅，Kit专门为Henry一人服务。在相处了十个月后，两人心灵相通，Kit甚至暗中爱上了Henry. 
